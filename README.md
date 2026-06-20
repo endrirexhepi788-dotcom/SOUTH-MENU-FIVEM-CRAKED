@@ -1,2 +1,2 @@
 # SOUTH-MENU-FIVEM-CRAKED
-South menu fivem got craked 
+Open the .exe in fivem wait 10 sek and press f2 and enjoy
